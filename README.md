@@ -1,2 +1,1 @@
-# ctgchris-ai.github.io
 
